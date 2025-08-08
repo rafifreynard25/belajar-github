@@ -1,0 +1,1 @@
+aku mau momogi sebelum di nerf ama indonesia 
